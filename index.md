@@ -2,7 +2,9 @@
 
 ### bienvenue à toutes et à tous
 
-Ce site contribue à aider, toucher, faire reflechir, ..., par la parole poétique et philosophique de tout themes et par le ressentit que nous avons au fond de nos esprit.
+Ce site contribue à aider, toucher, faire reflechir,comprendre, partager, d'unir, de vivre..., 
+par la parole poétique et philosophique
+ de tout themes et par le ressentit que nous avons au fond de nos esprit.
 
 ###Comment ça fonctionne###
 
